@@ -13,7 +13,7 @@ games outside of roblox - window garden, level devil, pony town, cats are liquid
 
 ## about me!!
 
-i am quite sensitive, no, i don't give a shit if it's just a game, I'll still be pissed at you. i have weird music taste, and I'm kinda bad at explaining stuff (e.g. this repository 😭)..
+i am quite sensitive, no, i don't give a shit if it's just a game, I'll still be pissed at you. i have weird music taste, and I'm kinda bad at explaining stuff (take this repository as an example 😭)..
 
 i love cats! i actually have four of them, one on my dad's, and three on my mom's (we have seperate houses)
 
