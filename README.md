@@ -25,9 +25,12 @@ anyways.. that's all, I want to add something else but I don't know what to add 
 
 [kate!!](https://github.com/aevsria)  [microwave <33](https://github.com/balloonship)  [juliaaa hi sis](https://github.com/1oveyounot)
 
+　<p align="center">![](https://komarev.com/ghpvc/?username=2ft-high&label=^⁠_⁠^&color=926850)
 
 
-
+   
 
 wow peace ✌️ 
+
+
 
