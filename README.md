@@ -32,7 +32,7 @@ anyways.. that's all, I want to add something else but I don't know what to add 
 
 
 
-<img width="272" height="168" alt="3200" src="https://github.com/user-attachments/assets/e313b813-dc03-4ba7-a0b1-535e2a60c472" />
+ <p align="center"> <img width="272" height="168" alt="3200" src="https://github.com/user-attachments/assets/e313b813-dc03-4ba7-a0b1-535e2a60c472" />
 
 <img width="258" height="159" alt="3201" src="https://github.com/user-attachments/assets/0bd5e87f-3f6b-4894-b9d5-7b4382cc35f4" />
    
