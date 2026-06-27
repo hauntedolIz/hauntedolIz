@@ -38,7 +38,17 @@ anyways.. that's all, I want to add something else but I don't know what to add 
 <img width="258" height="159" alt="3201" src="https://github.com/user-attachments/assets/0bd5e87f-3f6b-4894-b9d5-7b4382cc35f4" />
    
 
+  
 
 
 ## <p align="center"> look at them go!!!
+
+
+
+
+
+
+https://github.com/user-attachments/assets/8e0887c2-89c3-4f13-a68f-478a8ff0ed31
+
+
 
