@@ -30,7 +30,6 @@ anyways.. that's all, I want to add something else but I don't know what to add 
 　<p align="center">![](https://komarev.com/ghpvc/?username=2ft-high&label=how+many+meowffles+i+ate&color=926850)
 
 
-#### <p align="center"> wow peace ✌️ 
 
 
 <img width="272" height="168" alt="3200" src="https://github.com/user-attachments/assets/e313b813-dc03-4ba7-a0b1-535e2a60c472" />
@@ -52,3 +51,5 @@ https://github.com/user-attachments/assets/8e0887c2-89c3-4f13-a68f-478a8ff0ed31
 
 
 
+
+## <p align="center"> meow peace ✌️
