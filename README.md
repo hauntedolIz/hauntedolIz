@@ -47,7 +47,7 @@ anyways.. that's all, I want to add something else but I don't know what to add 
 
 
 
- <p align="center"> https://github.com/user-attachments/assets/8e0887c2-89c3-4f13-a68f-478a8ff0ed31
+https://github.com/user-attachments/assets/8e0887c2-89c3-4f13-a68f-478a8ff0ed31
 
 
 
