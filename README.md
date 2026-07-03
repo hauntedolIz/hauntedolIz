@@ -1,6 +1,6 @@
 i forgot how to make repositories but whatever
 
-hellooo meowz
+# NOTE: I AM REMAKING THIS REPOSITORY, IT WILL CONTAIN MOST OF MY INFORMATION IF I DO REMAKE IT!
 
 ## dni :
 people who judge others based off their differences, people who don't know how to respect someone's opinion then complain when they get hate, exploiters (including the 'nice' ones), proshippers, darkshippers, basic dni criteria
